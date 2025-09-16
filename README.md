@@ -1,4 +1,4 @@
-# Jhonny_nob
+# Jhonny_nob - He\She\They
 🎓 Estudante de **Análise e Desenvolvimento de Sistemas**  
 
 🎓 Estudante de **Redes de Computadores**
